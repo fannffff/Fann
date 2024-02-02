@@ -4,5 +4,3 @@ DSADASs
 tsrgrgseafwe
 tgrtgrgrgs
 hjgh
-saasqsqsa
-dggtryrtytryh
